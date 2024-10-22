@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Gayathrisithale
 - 👀 I’m interested in knowing new things
-- 🌱 I’m currently learning Btech 2nd year
+- 🌱 I’m currently learning Btech 4th year
 - 💞️ I’m looking to collaborate 
 - 📫 How to reach me gayathrisithale@gmail.com
 
